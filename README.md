@@ -1,0 +1,1 @@
+Ali abi boynuma dola
